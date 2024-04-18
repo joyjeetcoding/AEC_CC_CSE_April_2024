@@ -6,6 +6,8 @@
 
 **All Competitive Exam Notifications Available at:** https://clist.by/
 
+**Notepad.pw Link:** https://notepad.pw/J9Wj9lcNDRj9xbGcEQM8
+
 https://www.codechef.com/practice/course/2-star-difficulty-problems/DIFF1500/problems/PIPSQUIK
 
 https://www.codechef.com/PRACTICE/problems/CATSDOGS
